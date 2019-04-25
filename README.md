@@ -1,0 +1,2 @@
+# aliskak
+jangan pernah menyerah
